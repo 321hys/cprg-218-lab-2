@@ -152,3 +152,38 @@ Instructions:
 5. Whisk the egg yolks in a small bowl. While whisking, slowly add 1/4 cup of the hot sugar mixture into the egg yolks. Gradually stir the yolk mixture from the bowl back into the remaining sugar mixture in the saucepan. Return to medium heat and cook, stirring constantly, until a thermometer reads 160˚to 180˚, 1 to 2 minutes. Remove from the heat and immediately stir in the butter, lemon juice and zest, until the butter is completely melted. Pour the filling into the cooled tart crust. Let it cool for 15 minutes. Press a piece of plastic wrap onto the surface of the filling, then refrigerate for 4 hours.
 
 6. For the topping: Whisk together the heavy cream, sugar, and vanilla extract in a medium bowl until stiff peaks form, 1 to 2 minutes. Spread whipped cream over top of chilled pie. Garnish with fresh berries, if you like.
+
+###Lemon cookies
+
+Ingredients
+
+- 1 cup white sugar
+
+- ½ cup butter, softened
+
+- 2 tablespoons fresh lemon zest
+
+- 2 large eggs
+
+- 1 tablespoon fresh lemon juice
+
+- ½ teaspoon vanilla extract
+
+- 1 ¾ cups all-purpose flour
+
+- 1 ½ teaspoons baking powder
+
+- ¼ teaspoon salt
+
+- ¼ cup confectioners' sugar for rolling
+
+Directions
+1. Beat together sugar, butter, and lemon zest in a large bowl using an electric mixer until light and fluffy, about 3 minutes. Whisk together eggs, lemon juice, and vanilla in a small bowl until combined. Beat into butter mixture slowly on low speed.
+
+2. Whisk together flour, baking powder, and salt in a medium bowl. Add to egg mixture slowly on low speed until just combined. Do not overbeat; dough will be sticky. Cover and chill dough in the refrigerator for 30 minutes; it will still be sticky after chilling.
+
+3. Preheat the oven to 350 degrees F (175 degrees C). Line 2 baking sheets with parchment paper.
+
+4. Form dough into balls using a cookie scoop or tablespoon, then roll each in confectioners' sugar. Place 2 inches apart onto the prepared baking sheets. Lightly smash each ball down using your hand.
+
+5. Bake in the preheated oven until the centers are just barely set, 11 to 12 minutes. Let cool on a wire rack completely before storing in an airtight container.
