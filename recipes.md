@@ -129,6 +129,7 @@ Ingredients
 - 1 ½ teaspoons baking powder
 - ¼ teaspoon salt
 - ¼ cup confectioners' sugar for rolling
+- heart
 
 Directions
 
