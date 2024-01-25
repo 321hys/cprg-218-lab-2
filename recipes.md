@@ -114,3 +114,32 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Lemon Cookies
+
+Ingredients
+
+- 1 cup white sugar
+- ½ cup butter, softened
+- 2 tablespoons fresh lemon zest
+- 2 large eggs
+- 1 tablespoon fresh lemon juice
+- ½ teaspoon vanilla extract
+- 1 ¾ cups all-purpose flour
+- 1 ½ teaspoons baking powder
+- ¼ teaspoon salt
+- ¼ cup confectioners' sugar for rolling
+
+Directions
+
+1. Beat together sugar, butter, and lemon zest in a large bowl using an electric mixer until light and fluffy, about 3 minutes. Whisk together eggs, lemon juice, and vanilla in a small bowl until combined. Beat into butter mixture slowly on low speed.
+2. Whisk together flour, baking powder, and salt in a medium bowl. Add to egg mixture slowly on low speed until just combined. Do not overbeat; dough will be sticky. Cover and chill dough in the refrigerator for 30 minutes; it will still be sticky after chilling.
+3. Preheat the oven to 350 degrees F (175 degrees C). Line 2 baking sheets with parchment paper.
+
+Form dough into balls using a cookie scoop or tablespoon, then roll each in confectioners' sugar. Place 2 inches apart onto the prepared baking sheets. Lightly smash each ball down using your hand.
+
+1. Bake in the preheated oven until the centers are just barely set, 11 to 12 minutes. Let cool on a wire rack completely before storing in an airtight container.
+2. Recipe Tips
+You can add additional zest for more lemon flavor.
+
+You can fit eight balls of dough on a standard 9x13-inch baking sheet.
